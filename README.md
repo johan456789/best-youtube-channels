@@ -20,6 +20,28 @@
 
 [Code Bullet](https://www.youtube.com/c/CodeBullet)
 
+## Engineering
+
+### Mechanical engineering
+
+[SmarterEveryDay](https://www.youtube.com/c/smartereveryday)
+
+[engineerguy](https://www.youtube.com/c/engineerguyvideo)
+
+[Technology Connections](https://www.youtube.com/c/TechnologyConnections)
+
+### Aerospace engineering
+
+[Real Engineering](https://www.youtube.com/c/RealEngineering)
+
+### Civil engineering
+
+[Practical Engineering](https://www.youtube.com/c/PracticalEngineeringChannel)
+
+### Electrical engineering
+
+[ElectroBOOM](https://www.youtube.com/channel/UCJ0-OtVpF0wOKEqT2Z1HEtA)
+
 ## Movies / Video essays
 
 [Every Frame a Painting](https://www.youtube.com/c/everyframeapainting)
