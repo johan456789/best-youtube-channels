@@ -50,6 +50,16 @@
 
 [ElectroBOOM](https://www.youtube.com/channel/UCJ0-OtVpF0wOKEqT2Z1HEtA)
 
+## Mathematics
+
+[3Blue1Brown](https://www.youtube.com/channel/UCYO_jab_esuFRV4b17AJtAw)
+
+[Numberphile](https://www.youtube.com/user/numberphile)
+
+[Stand-up Maths](https://www.youtube.com/user/standupmaths)
+
+[Eddie Woo](https://www.youtube.com/c/misterwootube)
+
 ## Movies / Video essays
 
 [Every Frame a Painting](https://www.youtube.com/c/everyframeapainting)
