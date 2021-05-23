@@ -58,6 +58,8 @@
 
 [Stand-up Maths](https://www.youtube.com/user/standupmaths)
 
+[PBS Infinite Series](https://www.youtube.com/c/pbsinfiniteseries)
+
 [Eddie Woo](https://www.youtube.com/c/misterwootube)
 
 ## Movies / Video essays
