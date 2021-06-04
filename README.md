@@ -34,6 +34,8 @@
 
 [SmarterEveryDay](https://www.youtube.com/c/smartereveryday)
 
+[Mustard](https://www.youtube.com/c/MustardChannel)
+
 [engineerguy](https://www.youtube.com/c/engineerguyvideo)
 
 [Technology Connections](https://www.youtube.com/c/TechnologyConnections)
