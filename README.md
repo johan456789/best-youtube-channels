@@ -20,6 +20,16 @@
 
 [Code Bullet](https://www.youtube.com/c/CodeBullet)
 
+## Cooking
+
+[Tasty](https://www.youtube.com/c/buzzfeedtasty)
+
+[Tasty Recipes](https://www.youtube.com/c/tastyrecipes)
+
+[Babish Culinary Universe](https://www.youtube.com/c/bingingwithbabish)
+
+[小高姐的 Magic Ingredients](https://www.youtube.com/c/MagicIngredients)
+
 ## Economics / Business
 
 [Wendover Productions](https://www.youtube.com/c/Wendoverproductions)
