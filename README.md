@@ -30,13 +30,15 @@
 
 [小高姐的 Magic Ingredients](https://www.youtube.com/c/MagicIngredients)
 
-## Economics / Business
+## Economics / Business / Finance
 
 [Wendover Productions](https://www.youtube.com/c/Wendoverproductions)
 
 [PolyMatter](https://www.youtube.com/c/PolyMatter)
 
 [TechAltar](https://www.youtube.com/c/TechAltar)
+
+[小Lin说](https://www.youtube.com/c/Lindsay%E8%AF%B4)
 
 ## Engineering
 
