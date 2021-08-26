@@ -28,6 +28,8 @@
 
 [Babish Culinary Universe](https://www.youtube.com/c/bingingwithbabish)
 
+[Bon Appétit](https://www.youtube.com/channel/UCbpMy0Fg74eXXkvxJrtEn3w)
+
 [小高姐的 Magic Ingredients](https://www.youtube.com/c/MagicIngredients)
 
 ## Economics / Business / Finance
