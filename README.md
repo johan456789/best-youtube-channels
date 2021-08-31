@@ -32,7 +32,7 @@
 
 [小高姐的 Magic Ingredients](https://www.youtube.com/c/MagicIngredients)
 
-[MASA's Cooking ABC](https://www.youtube.com/c/masaabc1)
+[MASAの料理ABC](https://www.youtube.com/c/masaabc1)
 
 ## Economics / Business / Finance
 
