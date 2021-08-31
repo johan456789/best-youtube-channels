@@ -32,6 +32,8 @@
 
 [小高姐的 Magic Ingredients](https://www.youtube.com/c/MagicIngredients)
 
+[MASA's Cooking ABC](https://www.youtube.com/c/masaabc1)
+
 ## Economics / Business / Finance
 
 [Wendover Productions](https://www.youtube.com/c/Wendoverproductions)
