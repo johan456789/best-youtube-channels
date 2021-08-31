@@ -68,6 +68,14 @@
 
 [ElectroBOOM](https://www.youtube.com/channel/UCJ0-OtVpF0wOKEqT2Z1HEtA)
 
+## Physics
+
+[Veritasium](https://www.youtube.com/c/veritasium)
+
+[Physics Girl](https://www.youtube.com/c/physicsgirl)
+
+[PBS Space Time](https://www.youtube.com/c/pbsspacetime)
+
 ## Mathematics
 
 [3Blue1Brown](https://www.youtube.com/channel/UCYO_jab_esuFRV4b17AJtAw)
