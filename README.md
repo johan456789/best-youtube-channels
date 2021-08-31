@@ -1,4 +1,4 @@
-# Best YouTube channels (in my opinion)
+# Best YouTube channels
 
 ## Computer Science
 
