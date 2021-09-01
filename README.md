@@ -30,6 +30,8 @@
 
 [Bon Appétit](https://www.youtube.com/channel/UCbpMy0Fg74eXXkvxJrtEn3w)
 
+[Food Wishes](https://www.youtube.com/channel/UCRIZtPl9nb9RiXc9btSTQNw)
+
 [小高姐的 Magic Ingredients](https://www.youtube.com/c/MagicIngredients)
 
 [MASAの料理ABC](https://www.youtube.com/c/masaabc1)
