@@ -20,22 +20,6 @@
 
 [Code Bullet](https://www.youtube.com/c/CodeBullet)
 
-## Cooking
-
-[Tasty](https://www.youtube.com/c/buzzfeedtasty)
-
-[Tasty Recipes](https://www.youtube.com/c/tastyrecipes)
-
-[Babish Culinary Universe](https://www.youtube.com/c/bingingwithbabish)
-
-[Bon Appétit](https://www.youtube.com/channel/UCbpMy0Fg74eXXkvxJrtEn3w)
-
-[Food Wishes](https://www.youtube.com/channel/UCRIZtPl9nb9RiXc9btSTQNw)
-
-[小高姐的 Magic Ingredients](https://www.youtube.com/c/MagicIngredients)
-
-[MASAの料理ABC](https://www.youtube.com/c/masaabc1)
-
 ## Economics / Business / Finance
 
 [Wendover Productions](https://www.youtube.com/c/Wendoverproductions)
@@ -107,3 +91,19 @@
 [Now You See It](https://www.youtube.com/c/NowYouSeeIt)
 
 [Screened](https://www.youtube.com/c/Screened)
+
+## Cooking
+
+[Tasty](https://www.youtube.com/c/buzzfeedtasty)
+
+[Tasty Recipes](https://www.youtube.com/c/tastyrecipes)
+
+[Babish Culinary Universe](https://www.youtube.com/c/bingingwithbabish)
+
+[Bon Appétit](https://www.youtube.com/channel/UCbpMy0Fg74eXXkvxJrtEn3w)
+
+[Food Wishes](https://www.youtube.com/channel/UCRIZtPl9nb9RiXc9btSTQNw)
+
+[小高姐的 Magic Ingredients](https://www.youtube.com/c/MagicIngredients)
+
+[MASAの料理ABC](https://www.youtube.com/c/masaabc1)
