@@ -46,6 +46,12 @@
 
 [小Lin说](https://www.youtube.com/c/Lindsay%E8%AF%B4)
 
+## Geography
+
+[Geography Now](https://www.youtube.com/c/GeographyNow)
+
+[Real Life Lore](https://www.youtube.com/c/RealLifeLore)
+
 ## Engineering
 
 ### Mechanical engineering
